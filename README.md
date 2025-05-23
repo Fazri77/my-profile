@@ -7,7 +7,7 @@
 
 ## 🎮 RECENT PLAYED GAMES
 
-*Wuthering Wave*
-
+**Wuthering Wave**
+**Punishing Gray Raven**
 
 
