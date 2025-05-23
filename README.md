@@ -9,5 +9,5 @@
 
 **Wuthering Wave**
 **Punishing Gray Raven**
-
+**Blue Archive**
 
