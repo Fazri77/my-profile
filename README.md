@@ -5,7 +5,7 @@
 
 --
 
-## 🎮 RECENT PLAYED GAMES
+## 🎮 RECENT PLAYED GAMESS
 
 **Wuthering Wave**
 **Punishing Gray Raven**
